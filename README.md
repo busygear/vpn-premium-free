@@ -52,7 +52,7 @@ Yes! Our **VPN free trial 30 days** ensures top security, **no logs**, and **mil
 
 Don’t miss out! Grab your **VPN 30-day free trial now** and browse securely without restrictions. Click the button below to start!
 
-[![Get Your Free VPN Now](https://via.placeholder.com/300x100.png?text=Get+Your+Free+VPN+Now)](#)
+[![Get Your Free VPN Now](https://i.imgur.com/D8I7VTN.png)](#)
 
 ---
 
