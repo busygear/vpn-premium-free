@@ -1,6 +1,6 @@
 # Premium VPN Free Trial - 30 Days
 
-[![Premium VPN Free Trial](https://via.placeholder.com/800x400.png?text=Premium+VPN+Free+Trial)](#)
+[![Premium VPN Free Trial](https://i.imgur.com/D8I7VTN.png)](#)
 
 ## 🚀 Get a 30-Day Free VPN Trial Without Paying!
 
