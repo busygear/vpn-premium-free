@@ -20,7 +20,7 @@ A **VPN (Virtual Private Network)** is essential for protecting your online iden
 
 Getting a **VPN free trial for 30 days** is easy! Just follow these steps:
 
-1. Click the ["Get Your Free VPN Now"]([#](https://busygear.github.io/vpn-premium-free/)) button.
+1. Click the ["Get Your Free VPN Now"](https://busygear.github.io/vpn-premium-free/) button.
 2. Create a free account—**no credit card required**.
 3. Download and install the VPN app.
 4. Enjoy unlimited access for 30 days!
